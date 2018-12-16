@@ -19,6 +19,9 @@ freedom can be exercised while staying within these boudnaries.
 * If you move towards the area of animations and video, music is impermissible. 
 * Design promoting any impermissible event/idea is also impermissible. 
 
+## Course Link 
+
+If you agree, please join the course here: 
 
 ## Endnote 
 
