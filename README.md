@@ -21,7 +21,7 @@ freedom can be exercised while staying within these boudnaries.
 
 ## Course Link 
 
-If you agree, please join the course here: 
+If you agree, please join the course here: https://recluze.teachable.com/p/graphics-design-basics
 
 ## Endnote 
 
