@@ -19,6 +19,12 @@ freedom can be exercised while staying within these boudnaries.
 * If you move towards the area of animations and video, music is impermissible. 
 * Design promoting any impermissible event/idea is also impermissible. 
 
+## Opting Out 
+
+This course is completely optional. So, if you ever feel that you don't want to (or cannot) continue with 
+the course, simply drop me a line saying that you have to work on your formal courses. There will be no hard 
+feelings because I understand that this might not be something everyone would want to spend their time on. 
+
 ## Course Link 
 
 If you agree, please join the course here: https://recluze.teachable.com/p/graphics-design-basics
