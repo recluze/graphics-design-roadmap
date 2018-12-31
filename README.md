@@ -32,6 +32,10 @@ However, the process of learning requires taking criticism. So, whatever you cre
 be subject to (constructive) criticism. Please remember that this criticism is for your benefit and not 
 meant to belittle you or your work. 
 
+Please also keep in mind that this is extra work for me. I am putting in the time and effort to help you learn 
+something without any monetary rewards. So, if I say/do something that offends you, please do forgive me 
+(but do let me know about it so I can try to avoid it.) 
+
 ## Joining the Course 
 
 If all this sounds something you can work with, please respond to the person who sent you the invite with 
