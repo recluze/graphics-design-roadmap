@@ -25,9 +25,18 @@ This course is completely optional. So, if you ever feel that you don't want to 
 the course, simply drop me a line saying that you have to work on your formal courses. There will be no hard 
 feelings because I understand that this might not be something everyone would want to spend their time on. 
 
+## Criticism
+
+Creating art is a very personal endeavour. The artist usually feels very strongly about his or her work. 
+However, the process of learning requires taking criticism. So, whatever you create during this course will 
+be subject to (constructive) criticism. Please remember that this criticism is for your benefit and not 
+meant to belittle you or your work. 
+
 ## Joining the Course 
 
-If you agree, please respond to the person who sent you the invite with the following message: `Please add [your-email-address]` where `your-email-address` should be the address that should be added to the teachable course. 
+If all this sounds something you can work with, please respond to the person who sent you the invite with 
+the following message: `Please add [your-email-address]` where `your-email-address` should be the address 
+that should be added to the teachable course. 
 
 ## Endnote 
 
